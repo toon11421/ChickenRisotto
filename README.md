@@ -1,4 +1,1 @@
 # ChickenRisotto
-IT 15
-KMITL
-LOL CHAMPION
